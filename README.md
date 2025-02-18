@@ -1,5 +1,5 @@
 <h1 align="center">I am Sarp</h1>
-
+<h3 align="center">gng ts pmo fr icl lk sybau</h3>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sarp75&label=Profile%20views&color=0e75b6&style=flat" alt="sarp75" /> </p>
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=sarp75" alt="sarp75" /></a> </p>
@@ -16,6 +16,47 @@
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=sarp75&show_icons=true&locale=en" alt="sarp75" /></p>
 
 <h3 align="center">
+[Verse 1]
+Time to play
+No? Well, time to die
+'Cause I'm not nice, no, I'm not nice
+I'll shoot you in the face 'til I make you die
+Watch me shoot my secret cannon
+I put bombs in your belongings
+They call me The Bomb Thief, uh
+The way I disperse grief, uh
+And I don't like to play by the rules
+So, in my factory, you will be doomed (Mimic)
+
+[Verse 2]
+My name is Edwin, I made the Mimic
+It was difficult to put the pieces together
+But unfortunatеly, something went so wrong
+And now I can't do anything but sing this stupid song
+My name is Edwin
+
+[Chorus]
+It's timе to run and hide
+No time to fight
+It's time to run and hide
+No time to fight (My name is—)
+It's time to run and hide
+No time to fight
+It's time to run and hide
+No time to fight
+See upcoming pop shows
+Get tickets for your favorite artists
+You might also like
+
+MIMIC
+Rockit Music & FabvL
+
+A Teacher’s Sorrow
+XTRATUNA
+
+An Under’s Tale
+XTRATUNA
+[Verse 3]
 My name is David
 Dad, I want some ice cream
 David, that is my name
