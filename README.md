@@ -1,5 +1,4 @@
 <h1 align="center">I am Sarp</h1>
-<h3 align="center">My name is Edwin, I made the Mimic. It was difficult to put the pieces together. But unfortunatеly, something went so wrong. And now I can't do anything but sing this stupid song.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sarp75&label=Profile%20views&color=0e75b6&style=flat" alt="sarp75" /> </p>
 
@@ -15,3 +14,14 @@
 <p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=sarp75&show_icons=true&locale=en&layout=compact" alt="sarp75" /></p>
 
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=sarp75&show_icons=true&locale=en" alt="sarp75" /></p>
+
+<h3 align="center">
+My name is David
+Dad, I want some ice cream
+David, that is my name
+David, I want another, David
+Where is my ball?
+I'm running out on the road
+There is a car
+And it is going to hit me *screams*
+</h3>
