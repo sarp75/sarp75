@@ -38,15 +38,6 @@ Brr brr pata pim, Tralalero tralala
 Brr brr pata pim, Tralalero tralala
 Brr brr pata pim, Tralalero tralala
 Cappuccino assassino, Lirili larila
-See upcoming rap shows
-Get tickets for your favorite artists
-You might also like
-Brainrot Song
-Recreaite Studio
-ITALIAN BRAINROT ANTHEM
-Italian_Brainrot_Lover
-The Brainrot Song
-Opgeblazen
 
 ### Refrain
 Brr brr pata pim, Tralalero tralala
